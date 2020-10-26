@@ -1,1 +1,2 @@
 # Chocolava-Cake
+These rich, delicious Chocolate Molten Lava Cakes are sort of like a cross between a soufflé and a flourless chocolate cake, except much easier. The outside edges of the cake cook into a perfectly tender chocolate cake while the inside stays gooey soft and starts to ooze out once you cut into each cake.
